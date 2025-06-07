@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python, C++, Docker and Ethical Hacking
 - 💞️ I’m looking to collaborate on AI Model fine tuning
 - 📫 How to reach me- f127nightraptorjagat at Insta
--                     - @sanjeevgautam2452 at youtube
+-                     - @KanhaGautam6574 at youtube
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: The ONE PIECEEE! is REALLLL!
 
